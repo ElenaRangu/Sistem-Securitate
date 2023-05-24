@@ -1,0 +1,2 @@
+# Sistem-Securitate
+Anti-theft/burglary alarm systems are a set of interconnected devices with the purpose of protecting an object, usually a location, against intruders, and at the same time notifying the owner and/and dispatcher/centre of breaches of protected areas. Depending on the requirements and financial possibilities, one can choose a simple alarm system, suitable for the basic protection of a house/apartment, or a more advanced structure, which, in addition to the basic functions, will considerably improve the comfort of users.
